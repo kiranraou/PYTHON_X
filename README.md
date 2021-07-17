@@ -12,3 +12,7 @@
 
 ![KRKRAO](https://user-images.githubusercontent.com/85458059/126045312-f452336a-19de-46d9-8946-caafdb088a7e.jpg)
 
+
+![sketch](https://user-images.githubusercontent.com/85458059/126045350-8eae59fa-2072-402a-8369-3c75e5026c22.png)
+
+
