@@ -15,4 +15,7 @@
 
 ![sketch](https://user-images.githubusercontent.com/85458059/126045350-8eae59fa-2072-402a-8369-3c75e5026c22.png)
 
+![livingroom](https://user-images.githubusercontent.com/85458059/127740716-c2ef1daa-04e7-43fa-b148-4d9a7d6ca60b.jpg)
+
+
 
